@@ -15,7 +15,6 @@
 - 1 sdm Minyak inggris (bisa d keep)<br>
 - secukupnya Garam<br>
 - 1 sdm Gula<br>
-<br>
 
 ### Cara Membuat
 

@@ -14,7 +14,6 @@
 - Sedikit ketumbar<br>
 - secukupnya Air<br>
 - 5 lembar Daun jeruk<br>
-<br>
 
 ### Cara Membuat
 
