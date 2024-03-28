@@ -15,7 +15,7 @@
 - secukupnya Air<br>
 - 5 lembar Daun jeruk<br>
 <br>
-Cara Membuat<br>
+### Cara Membuat<br>
 1. Cuci bersih ayam, lalu marinasi.<br>
 2. Goreng kacang tanah sampai kecoklatan.<br>
 3. Lalu goreng ayam yang sudah dimarinasi.<br>
