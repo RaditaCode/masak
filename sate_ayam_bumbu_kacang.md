@@ -1,6 +1,6 @@
 https://cookpad.com/id/resep/17305778-4-ayam-bumbu-kacang?ref=search&search_term=bumbu%20kacang%20rasa<br>
-### Sate Ayam<br>
-<br>
+### Sate Ayam Bumbu Kacang<br>
+
 Bahan<br>
 1 buah Dada ayam<br>
 200 gr kacang tanah<br>
