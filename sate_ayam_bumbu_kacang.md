@@ -1,6 +1,6 @@
 # [Sate Ayam Bumbu Kacang](https://cookpad.com/id/resep/17305778-4-ayam-bumbu-kacang?ref=search&search_term=bumbu%20kacang%20rasa)<br>
 
-### Bahan<br>
+### Bahan
 - 1 buah Dada ayam<br>
 - 200 gr kacang tanah<br>
 - 5 siung bawang merah<br>
@@ -15,7 +15,9 @@
 - secukupnya Air<br>
 - 5 lembar Daun jeruk<br>
 <br>
-### Cara Membuat<br>
+
+### Cara Membuat
+
 1. Cuci bersih ayam, lalu marinasi.<br>
 2. Goreng kacang tanah sampai kecoklatan.<br>
 3. Lalu goreng ayam yang sudah dimarinasi.<br>
