@@ -18,8 +18,8 @@
 
 ### Cara Membuat
 
-1. Bumbu dihaluskan d ca mpur smua kecuali minyak filma.. Minyak filma dcampur stelah bumbu halus..kecap juga d campur stelah bumbu halus.<br>
-2. Besihkan ikan...belah jdi 2 bgian tp jgn smpai putus.<br>
-3. Stelah tu ikan d goreng trlebih dahulu stengah matang...<br>
-4. Stelah d goreng.. Dtiriskan langsung d bakar mnggunakan bumbu halus yg td dsediakan...<br>
+1. Bumbu dihaluskan di campur semua kecuali minyak filma.. Minyak filma dicampur setelah bumbu halus..kecap juga di campur setelah bumbu halus.<br>
+2. Besihkan ikan...belah jadi 2 bagian tp jgn sampai putus.<br>
+3. Setelah itu ikan di goreng terlebih dahulu setengah matang...<br>
+4. Setelah di goreng.. Ditiriskan langsung di bakar menggunakan bumbu halus yg td disediakan...<br>
 5. Selesai.... Ikan bakar siap di hidangkan.<br>
