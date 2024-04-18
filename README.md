@@ -3,4 +3,4 @@
 [Ikan Bakar Merapi](https://github.com/RaditaCode/masak/blob/main/ikan_bakar_merapi.md)<br>
 [Steak Brown Sauce](https://github.com/RaditaCode/masak/blob/main/steak_brown_sauce.md)<br>
 <br>
-[edit](https://vscode.dev/github/raditacode/masak)
+[vscode](https://vscode.dev/github/raditacode/masak)
