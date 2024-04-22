@@ -1,5 +1,5 @@
 # [Mozarella Stick](https://cookpad.com/id/resep/5629598-mozarella-stick)<br>
-https://img-global.cpcdn.com/recipes/3cfa403437a66007/640x640sq70/photo.jpg
+![Alt text](https://img-global.cpcdn.com/recipes/3cfa403437a66007/640x640sq70/photo.jpg)
 ### Bahan
 - 200 gr Keju Mozarella Potong Panjang (me : Anchor)
 - 50 gr Tepung Terigu
