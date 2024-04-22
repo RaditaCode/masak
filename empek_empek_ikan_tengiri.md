@@ -1,5 +1,5 @@
 # [Empek-Empek Ikan Tengiri](https://cookpad.com/id/resep/17265655-empek-empek-ikan-tengiri)<br>
-
+![Empek empek](https://img-global.cpcdn.com/recipes/926ac619ce4ec5a5/640x640sq70/photo.jpg)
 ### Bahan
 - 500 grm daging ikan tengiri
 - 400 grm tepung tapioka merek tani
