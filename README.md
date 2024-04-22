@@ -4,4 +4,7 @@
 [Sate Ayam Bumbu Kacang](https://github.com/RaditaCode/masak/blob/main/sate_ayam_bumbu_kacang.md)<br>
 [Steak Brown Sauce](https://github.com/RaditaCode/masak/blob/main/steak_brown_sauce.md)<br>
 <br>
+## Jajan
+[Empek-empek ikan tengiri](https://github.com/RaditaCode/masak/blob/main/%5Bjajan%5D%20mozarella_stick.md)<br>
+<br>
 [vscode](https://vscode.dev/github/raditacode/masak)
