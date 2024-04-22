@@ -5,6 +5,6 @@
 [Steak Brown Sauce](https://github.com/RaditaCode/masak/blob/main/steak_brown_sauce.md)<br>
 <br>
 ## Jajan
-[Empek-empek ikan tengiri](https://github.com/RaditaCode/masak/blob/main/%5Bjajan%5D%20mozarella_stick.md)<br>
+[Mozarella Stick](https://github.com/RaditaCode/masak/blob/main/%5Bjajan%5D%20mozarella_stick.md)<br>
 <br>
 [vscode](https://vscode.dev/github/raditacode/masak)
