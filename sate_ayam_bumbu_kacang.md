@@ -1,5 +1,5 @@
 # [Sate Ayam Bumbu Kacang](https://cookpad.com/id/resep/17305778-4-ayam-bumbu-kacang)<br>
-
+![Sate Ayam Bumbu Kacang](https://img-global.cpcdn.com/recipes/de56432b9990a111/1200x630cq70/photo.jpg)
 ### Bahan
 - 1 buah Dada ayam<br>
 - 200 gr kacang tanah<br>

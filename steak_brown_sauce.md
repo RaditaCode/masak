@@ -1,5 +1,5 @@
 # [Chicken Steak Brown Sauce](https://cookpad.com/id/resep/17229729-chicken-steak-brown-sauce)<br>
-
+![Chicken Steak Brown Sauce](https://img-global.cpcdn.com/recipes/4ff77082f3b4f04a/1200x630cq70/photo.jpg)
 ### Bahan
 - 500 gr Dada Ayam Fillet
 ### Bahan Marinasi Ayam
