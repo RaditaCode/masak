@@ -25,8 +25,7 @@
 1. Campur bahan 1 kecuali telur dan baking powder, aduk sampai tercampur rata, tidak ada tepung yg bergerindil, sampai adonan lengket dan mulai muncul gelembung kecil itu artinya gluten sudah mulai terbentuk, bisa juga diaduk pakai mixer.<br>
 2. Tambahkan telur dan baking powder, aduk sebentar saja asal rata.<br>
 3. Istirahatkan adonan minimal 1 jam bisa sampai 5 jam, atau disimpan di kulkas untuk digunakan esok hari.<br>
-4. Setelah adonan diistirahatkan banyak muncul gelembung-gelembung kecil itu artinya adonan siap untuk dimasak.
-<br>
+4. Setelah adonan diistirahatkan banyak muncul gelembung-gelembung kecil itu artinya adonan siap untuk dimasak.<br>
 5. Bagi adonan menjadi 2 bagian.<br>
 6. Campur 50 ml air & ½ sdt baking soda lalu bagi menjadi 2 bagian.<br>
 7. Masukkan larutan baking soda & ¼ sdt perisa vanila/pandan ke masing-masing adonan.<br>
