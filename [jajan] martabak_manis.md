@@ -1,4 +1,4 @@
-# [Mozarella Stick](https://cookpad.com/id/resep/13983959-martabak-manis-teflon-anti-gagal-tips-bersarang)<br>
+# [Martabak Manis](https://cookpad.com/id/resep/13983959-martabak-manis-teflon-anti-gagal-tips-bersarang)<br>
 ![martabak-manis](https://img-global.cpcdn.com/recipes/b7af95d069b63aa9/1200x630cq70/photo.jpg)
 
 ### Bahan 1
