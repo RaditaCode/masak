@@ -6,6 +6,7 @@
 [Steak Brown Sauce](https://github.com/RaditaCode/masak/blob/main/steak_brown_sauce.md)<br>
 <br>
 ## Jajan
+[Mochi Mangga](https://github.com/RaditaCode/masak/blob/main/%5Bjajan%5D%20mochi_mangga.md)<br>
 [Martabak Manis](https://github.com/RaditaCode/masak/blob/main/%5Bjajan%5D%20martabak_manis.md)<br>
 [Mozarella Stick](https://github.com/RaditaCode/masak/blob/main/%5Bjajan%5D%20mozarella_stick.md)<br>
 <br>
